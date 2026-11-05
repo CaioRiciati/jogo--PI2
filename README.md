@@ -66,4 +66,4 @@ Mais do que sobreviver, o objetivo é descobrir até onde a química pode levar 
 
 ---
 
-**🧪 Elements — A química nunca foi tão perigosa.**
+**🧪 Elements — A química nunca foi tão facil.**
